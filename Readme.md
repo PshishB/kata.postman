@@ -1,3 +1,3 @@
 # Скриншоты выполнеиня работы
-![](image.png)
 ![](sKwS_1PU4Ws.jpg)
+![](QqKjv4kq4dI.jpg)
